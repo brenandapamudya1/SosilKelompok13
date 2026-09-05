@@ -1,6 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 2 September 2026
+**Moderator:** Tera
 
 ---
 

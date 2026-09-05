@@ -1,6 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 23 Agustus 2026
+**Moderator:** Aurellya
 
 ---
 

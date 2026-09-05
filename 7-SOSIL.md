@@ -1,6 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 28 Agustus 2026
+**Moderator:** Zakky
 
 ---
 

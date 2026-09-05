@@ -1,6 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 4 September 2026
+**Moderator:** Nabila Salwa
 
 ---
 

@@ -1,6 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 30 Agustus 2026
+**Moderator:** Afrizal
 
 ---
 
