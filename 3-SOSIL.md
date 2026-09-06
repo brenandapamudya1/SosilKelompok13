@@ -1,7 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 1 Juli 2026
-**Moderator:** Laskar
+**Moderator:** Laskar Brahimanov Riadi
 
 ---
 

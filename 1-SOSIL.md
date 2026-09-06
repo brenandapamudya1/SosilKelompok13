@@ -1,7 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 19 Juni 2026
-**Moderator:** Aurellya
+**Moderator:** Aurellya Salsabilla Daiva B.
 
 ---
 

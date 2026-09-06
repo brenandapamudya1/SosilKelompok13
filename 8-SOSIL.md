@@ -1,7 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 29 Agustus 2026
-**Moderator:** Dealova
+**Moderator:** Dealova Putri Vijaya
 
 ---
 

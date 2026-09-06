@@ -1,7 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 22 Juli 2026
-**Moderator:** Tera
+**Moderator:** Ach Hasan Terafsanjani
 
 ---
 

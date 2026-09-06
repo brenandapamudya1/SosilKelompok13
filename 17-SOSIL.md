@@ -1,7 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 5 September 2026
-**Moderator:** Jovani
+**Moderator:** Jovani Ramadhania Kanedi
 
 ---
 

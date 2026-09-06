@@ -1,7 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 26 Juni 2026
-**Moderator:** Aulia
+**Moderator:** Aulia Nailatur Rahmah
 
 ---
 

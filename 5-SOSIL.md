@@ -1,7 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 6 Agustus 2026
-**Moderator:** Brenanda
+**Moderator:** Brenanda Caesa Pamudya
 
 ---
 

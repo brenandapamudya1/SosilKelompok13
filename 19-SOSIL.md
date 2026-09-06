@@ -1,7 +1,7 @@
 # Notulensi Sosialisasi Kating
 
 **Tanggal:** 6 September 2026
-**Moderator:** Nabila Nur
+**Moderator:** Nabilah Nurusshoffa Maryam
 
 ---
 
