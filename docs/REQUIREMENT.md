@@ -32,7 +32,7 @@ Hasilkan output untuk setiap kating dengan format persis seperti ini (gunakan pe
 1. Nama : [Nama Lengkap / Nama Panggilan jika tidak ada di identitas]
 2. NRP : [NRP / "-" jika tidak ada]
 3. Sosmed : [Username sosmed / "-" jika tidak ada]
-4. Deskripsi : [Paragraf ringkasan naratif yang lengkap dan mencakup seluruh poin di atas] (Note : Deskripsi Memiliki Jumlah Kata 90-100. Tidak Boleh Lebih dan Kurang)
+4. Deskripsi : [Paragraf ringkasan naratif yang lengkap dan mencakup seluruh poin di atas] (Note : Deskripsi Memiliki Jumlah Kata 100-110. Boleh Lebih dan Kurang asal dengan pertimbangan, bila tidak maka segitu)
 
 ---
 
