@@ -19,7 +19,7 @@
 
 ---
 
-**1. Nama : Azzahra**
+**1. Nama : Azzahra Ayungga Sukma**
 **2. NRP : 5003231132**
 **3. Sosmed : @azzahrays_**
 **4. Deskripsi :** Kak Azzahra kuliah ngasdos sibuk Hima kominfo, mendekati wisuda sambil nyicil TA kalau gabut. Magang kominfo 3 periode. TA masih mikir fenomena, maunya Dosen Bu Santi Putri karena anreg arima. BCS poinnya relasi, TDC pertama organisasi jualan mochi keliling laris. Burnout bikin to-do list dan power nap, main game sempat les vokal PCM. Transisi semester 1-2 belum melek nggak bisa pakai cara SMA. Favorit AKB, stat nonpar dan analisis finansial saja.
